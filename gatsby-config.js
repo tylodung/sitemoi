@@ -8,10 +8,10 @@
 
 module.exports = {
   siteMetadata: {
-    title: 'Hữu Tình',
-    siteUrl: 'https://healtheventnews.com/',
+    title: 'Ẩm Thực',
+    siteUrl: 'https://fontgenerator.cc/',
     rssFeedTitle: 'tinhthuong',
-    rssFeedDescription: 'Đoàn Bình và Nhân Gian Hữu Tình',
+    rssFeedDescription: 'Đoàn Bình và Ăn Uống',
   },
   mapping: {
     'MarkdownRemark.frontmatter.author': 'AuthorYaml',
