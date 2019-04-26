@@ -148,7 +148,7 @@ const Header = ({location}) => (
                 borderRadius: 15,
               },
             }}
-            href="https://healtheventnews.com/"
+            href="https://fontgenerator.cc/"
             target="_blank"
             rel="noopener">
             Bakadono {version}
