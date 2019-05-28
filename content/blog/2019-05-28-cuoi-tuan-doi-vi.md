@@ -5,11 +5,13 @@ title: Chủ Nhật đổi vị với sinh tố cà phê trân châu
 author: [doanbinh] 
 ---
 
-Cà phê là một loại thức uống rất gần gũi với người dân Việt Nam, trân châu được biết đến như là một loại là một loại topping ăn kèm trong trà sữa rất được ưa chuộng. Chẳng ai có thể ngờ rằng cà phê và trân châu lại có thể kết hợp với nhau trong một loại đồ uống vừa có tác dụng xua tan mọi mệt mỏi căng thẳng mà với chị em phụ nữ lại còn có tác dụng giảm cân nữa.
+Cà phê là một loại thức uống rất gần gũi với người dân Việt Nam, trân châu được biết đến như là một loại là một loại topping ăn kèm trong trà sữa rất được ưa chuộng. 
 
-Cuối tuần tiết trời trở lạnh như thế này mà được nhâm nhi những hạt trân châu trong những ly sinh tố đậm đà hương vị cà phê quả là thú vị phải không nào? Vậy thì hãy bắt tay vào thực hiện thôi  nào.
+Chẳng ai có thể ngờ rằng cà phê và trân châu lại có thể kết hợp với nhau trong một loại đồ uống vừa có tác dụng xua tan mọi mệt mỏi căng thẳng mà với chị em phụ nữ lại còn có tác dụng giảm cân nữa.
 
-Nguyên liệu làm sinh tố cà phê trân châu gồm có:
+Cuối tuần tiết trời trở lạnh như thế này mà được nhâm nhi những hạt trân châu trong những ly sinh tố đậm đà hương vị cà phê quả là thú vị phải không nào? Vậy thì hãy bắt tay vào thực hiện thôi nào.
+
+**Nguyên liệu làm sinh tố cà phê trân châu gồm có:**
 
 Cà phê (dạng bột hoặc có thể dùng cà phê hòa tan)
 
@@ -21,15 +23,15 @@ Hạt trân châu đen (hoặc trắng)
 
 Bột Cacao
 
-Đá viên
+Đá viên.
 
-Cách thực hiện:
+**Cách thực hiện:**
 
 Bước 1: Pha cà phê
 
 Trước tiên bạn pha cà phê để lấy phần nước cà phê sau đó để nguội. Các bạn hoàn toàn có thể thay thế bằng cà phê hòa tan cũng được nhưng để ly sinh tố cà phê trân châu đậm mùi vị thì Vietblend khuyên bạn nên dùng bột cà phê pha phin hoặc pha máy nhé!
 
- Bước 2: Luộc trân châu
+Bước 2: Luộc trân châu
 
 Luộc trân châu trong nước nóng khoảng 5 phút sau đó tắt bếp và ủ trong 10 phút. Trong thời gian ủ bạn tiếp tục hòa tan đường nâu với nước và đun sôi đến khi đường sánh thì vớt trân châu đã ủ xong vào dung dịch này.
 

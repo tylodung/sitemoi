@@ -5,22 +5,23 @@ title: Kem lạnh là gì?
 author: [doanbinh] 
 ---
 
-Không chỉ trong những ngày hè nắng nóng oi ả mà cả những ngày mưa hay tiết trời giá lạnh của mùa Đông, Kem lạnh đã trở thành món ăn, món tráng miệng thú vị hấp dẫn tất cả mọi người. Vậy “kem là gì?”, “Kem có nguồn gốc từ đâu”, “Có bao nhiêu loại kem trên thế giới?”, “Loại kem nào ngon nhất?”…
+Không chỉ trong những ngày hè nắng nóng oi ả mà cả những ngày mưa hay tiết trời giá lạnh của mùa Đông, Kem lạnh đã trở thành món ăn, món tráng miệng thú vị hấp dẫn tất cả mọi người. 
 
-Đó đều là những câu hỏi mà Vietblend chắc chắn rằng ai cũng thắc mắc nhưng dường như không chắc chắn về câu trả lời.
+Vậy “kem là gì?”, “Kem có nguồn gốc từ đâu”, “Có bao nhiêu loại kem trên thế giới?”, “Loại kem nào ngon nhất?”…
 
-1. Kem lạnh là gì?
+
+**1. Kem lạnh là gì?**
 
 
 Kem lạnh là món ăn ngọt dạng đông lạnh được làm từ các sản phẩm từ sữa như sữa và thường được kết hợp với các loại trái cây và các hương vị khác như vani, chocolate…. Kem được làm ngọt bằng đường hoặc các chất ngọt có thể thay thế đường (sữa, mật ong…). Hỗn hợp này được khuấy đều trong môi trường chân không (không có không khí) và có nhiệt độ thấp để tránh tạo thành những tinh thể băng. Kết quả là kem ở dạng mịn, xốp.
 
-2. Kem lạnh có nguồn gốc từ đâu?
+**2. Kem lạnh có nguồn gốc từ đâu?**
 
 
 
 Cho tới tận bây giờ câu hỏi này vẫn còn khá nhiều tranh cãi. Số đông thì vẫn nghĩ rằng kem bắt nguồn từ Mỹ – Hoa Kỳ bởi họ là những người đem những que, ly kem lạnh phổ biến toàn thế giới. Người Ý lại phản đối bởi công thức kem lạnh đầu tiên là ở đất nước họ. Lúc này người Trung Quốc lại phản đối rằng từ trước khi người Ý sáng tạo ra công thức kem lạnh của riêng mình thì họ cũng đã có món ăn này trong những bữa tiệc của triều đình Phong Kiến mà sử sách đã ghi chép lại.
 
-3. Lịch sử hình thành của kem lạnh?
+**3. Lịch sử hình thành của kem lạnh?**
 
 Chúng ta cùng “ngược dòng thời gian” một chút để tìm hiểu nhé!
 

@@ -5,8 +5,7 @@ title: Thể hiện cùng pha chế Sparkling Tea
 author: [doanbinh] 
 ---
 
-HÔM NAY UỐNG GÌ?
-
+Hôm nay uống gì?
 Đồ uống hôm nay sẽ là món SPARKLING TEA – cái tên nghe rất lạ đúng không ?
 
 ![ten buc hinh](https://vietblend.vn/wp-content/uploads/2018/12/img_3128.jpg "ten buc hinh")
