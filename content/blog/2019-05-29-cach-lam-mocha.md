@@ -8,7 +8,9 @@ author: [doanbinh]
 
 Nếu bạn là 1 fan của cafe take-away, chắc hẳn bạn đã ít nhất 1 lần nghe tới món cafe Mocha. Đây là 1 dòng cafe Ý rất đẹp mắt và dễ uống. Qua bài viết dưới đây, hãy tìm hiểu về cafe mocha và cách làm Mocha nóng và lạnh cực ngon !
 
-1. Mocha là gì?
+![ten buc hinh](https://nguyenlieuphachehanoi.com/wp-content/uploads/2018/04/mocha-no%CC%81ng.jpg "ten buc hinh")
+
+**1. Mocha là gì?**
 
 Mocha (đọc là mo-ka), tiếng Ý còn gọi là Mocaccino, là một trong những sản phẩm café Ý điển hình, gần giống như café Latte nhưng có thêm sauce chocolate. Vị đắng ngọt ngào của chocolate hòa quyện với vị đắng của café và béo ngậy hơn nhờ sữa tươi đánh nóng cùng lớp bọt sữa mịn màng, đã khiến cho Mocha trở thành thức uống ưa thích của phụ nữ và giới trẻ.
 
@@ -28,7 +30,7 @@ Bình shaker (bình lắc – dùng cho đồ lạnh)
 
 Zic đong (ca đong ml)
 
-2. Cách làm Mocha nóng (size M – single)
+**2. Cách làm Mocha nóng (size M – single)**
 
 
 Công thức:
@@ -62,7 +64,7 @@ Rắc bột cacao phủ đều khắp bề mặt lớp creama của café
 Thế là bạn đã có một cốc Mocha ngon tuyệt rồi. Khi uống bạn khuấy đều để lớp sauce chocolate hòa quyện với café và sữa, thưởng thức cùng bánh cookie nhé!
 
 
-3. Cách làm Mocha đá
+**3. Cách làm Mocha đá**
 
 Công thức:
 

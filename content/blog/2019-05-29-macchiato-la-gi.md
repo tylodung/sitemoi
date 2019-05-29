@@ -8,26 +8,28 @@ author: [doanbinh]
 
 “Macchiato” tiếng Ý có nghĩa là “vệt lốm đốm”, dùng để chỉ một trong những sản phẩm café Ý điển hình, bên cạnh Cappuccino hay Latte. Ngày nay, Macchiato còn được sử dụng để gọi các loại trà có lớp bọt sữa dày căng mịn phủ phía trên. 
 
+![ten buc hinh](https://vietblend.vn/wp-content/uploads/2018/12/caramel-macchiato_830x550.jpg "ten buc hinh")
+
 Tuy nhiên bài viết này chỉ đề cập đến tính chất và cách pha chế Café Macchiato nguyên gốc chuẩn hương vị Ý.
 
 Café Macchiato có 2 phiên bản là Espresso Macchiato và Latte Macchiato, khác nhau (thậm chí là đối lập nhau) ở lượng café và sữa.
 
-Espresso Macchiato
+**Espresso Macchiato**
 
 Espresso Macchiato có thành phần chủ yếu là café (1 shot hoặc 2 shot), chỉ có 1 chút sữa tươi đánh nóng và điểm thêm “đốm” bọt sữa nhỏ. Loại này dành cho những người yêu thích hương vị mạnh, đậm đắng của café.
 
-Latte Macchiato
+**Latte Macchiato**
 
 Latte Macchiato thành phần chính là sữa tươi đánh nóng và bọt sữa rất dày, còn café đóng vai trò “vệt lốm đốm”. Latte Macchiato khác với café thông thường ở lớp bọt sữa, dành cho những người ưa vị ngọt, béo ngậy nhưng vẫn phảng phất 1 chút café.
 
 Latte Macchiato thường được ưa chuộng hơn, và một biến thể của dòng sản phẩm này có tên gọi Caramel Macchiato – sự kết hợp hoàn hảo giữa vị đắng nhẹ của café espresso, vị béo ngậy của sữa đánh nóng cùng caramel thơm ngọt ngào, bên trên phủ một lớp bọt sữa trắng căng mịn thật dày. Thưởng thức Macchiato tuyệt nhiên không nên dùng ống hút hay thìa khuấy, mà hãy nhấp môi để cảm nhận dòng café sữa caramel xuyên qua lớp bọt tan dần trong miệng.
 
 
-Cách pha chế café Caramel Macchiato đúng chuẩn café Ý
+**Cách pha chế café Caramel Macchiato đúng chuẩn café Ý**
 
 Để pha được các dòng sản phẩm café Ý, bạn cần có máy pha café và các dụng cụ đi kèm khác.  Bạn nên tham gia 1 khóa học pha chế cà phê để nắm được những kỹ thuật chiết xuất và đánh sữa cơ bản.
 
-Nguyên liệu:
+*Nguyên liệu:*
 
 Café espresso
 
@@ -37,7 +39,7 @@ Sauce Caramel Davinci: 20ml
 
 Đường nước: 5ml
 
-Cách làm:
+*Cách làm:*
 
 Bước 1: Chuẩn bị 1 cốc thủy tinh trong có quai đã lau sạch (đồ nóng nên dùng cốc có quai). Cho 15ml sauce caramel và 5ml đường nước vào đáy ly.
 

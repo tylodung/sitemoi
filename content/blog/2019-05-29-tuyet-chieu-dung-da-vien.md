@@ -8,6 +8,8 @@ author: [doanbinh]
 
 Tuy phổ biến trong hầu hết quán pha chế nhưng không được đánh giá cao đó chính là đá viên. Bartender mới vào không thể ngờ rằng, trong cocktail lượng đá chiếm đến 50% vai trò trong đồ uống của bạn.
 
+![ten buc hinh](https://vietblend.vn/wp-content/uploads/2018/09/da-vien.jpg "ten buc hinh")
+
 Không chỉ có tác dụng giữ lạnh cho những ly rượu mạnh mà đá được coi như nguồn nước trong các ly cocktail, ảnh hưởng trực tiếp đến hương vị và chất lượng đồ uống.
 
 Là một Bartender mới, việc hiểu tầm quan trọng của viên đá sẽ góp phần không nhỏ trong việc đem đến sự hoàn hảo cho những ly đồ uống. Cùng Vietblend khám phá những bí quyết nhé:

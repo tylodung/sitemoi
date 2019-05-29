@@ -17,12 +17,12 @@ Trong tiết trời nóng nực của mùa hè thì một ly trà xanh kiwi vàn
 
 20 ml SHOTT Gold Kiwi (Kiwi vàng)
 
-30 ml đường
+30 ml đường.
 
 **Cách làm:**
 
-Cho trà, SHOTT và đường vào bình lắc
+Cho trà, SHOTT và đường vào bình lắc.
 
-Lắc cùng với đá
+Lắc cùng với đá.
 
 Vậy là bạn đã có ngay 1 ly trà xanh kiwi vàng mát lạnh để thưởng thức và quên đi cơn nóng rồi. Thật dễ dàng và đơn giản phải không nào.
