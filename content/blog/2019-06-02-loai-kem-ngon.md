@@ -12,7 +12,7 @@ Kem không chỉ là món tráng miệng hấp dẫn mọi đối tượng từ 
 
 Điều gì khiến Gelato (Kem Ý) trở nên đặc sắc so với những loại kem nổi tiếng khác nhỉ?
 
-Gelato là gì?
+**Gelato là gì?**
 
 Gelato trong tiếng Ý có nghĩa là “đông lạnh” chính vì điều này khiến người đánh đồng “Gelato” và “Ice cream” là một. Thế nhưng bạn nên biết rằng hai khái niệm này hoàn toàn khác nhau, bởi Gelato đại diện cho sự lãng mạn, dịu nhẹ và thủ công của Ý còn Ice cream lại mang dấu ấn của thời đại công nghiệp, của máy móc.
 
@@ -20,15 +20,15 @@ Người ta vẫn thường nhắc đến Gelato như một sự biến tấu t�
 
 Dù cách làm Gelato dựa trên những kĩ thuật cơ bản của nói chung, nhưng Gelato nhanh chóng khẳng định đặc trưng về hương vị lẫn vị thế của mình trong thế giới đồ tráng miệng, thoát khỏi cái bóng “công thức kem kiểu Ý” và được công nhận như một món ngọt riêng biệt. Trong thực đơn ở nhà hàng hay các tiệm bánh, bạn sẽ luôn tìm thấy cái tên Gelato nằm tách biệt với Ice cream – tên gọi chung để chỉ các loại kem thông thường.
 
-Điều gì khiến Gelato trở thành loại kem ngon nhất?
+**Điều gì khiến Gelato trở thành loại kem ngon nhất?**
 
 Một điều đặc biệt khác ở kem Gelato là độ mềm mịn trong từng thớ kem. Gelato có vị ngọt và kết cấu mềm mịn đặc trưng, bạn có thể cảm nhận ngay lập tức sự mềm mại, mỏng nhẹ như mây của Gelato, khác biệt hẳn so với kết cấu đặc và cứng của kem thông thường: Khi đưa vào miệng, Gelato lập tức tan chảy tựa món sữa đông lạnh, món ăn này vẫn luôn được miêu tả như món kem mềm hay kem sữa là vì vậy. Tuy nhiên, để thật sự phu biệt Gelato với kem cũng như nắm rõ công thức rất khác nhau của hai loại tráng miệng này, chúng ta cần lưu ý ba điểm sau:
 
-1. Hàm lượng chất béo
+**1. Hàm lượng chất béo**
 
 Gelato có màu không quá sặc sỡ và mùi vị của trái cây không phải lúc nào cũng giống nhau. Hàm lượng chất béo trong kem Gelato lại ít hơn nhiều so với kem thông thường, chỉ chiếm 4-5%, trong khi các loại kem khác chiếm 16-18%. Vì vậy, thực khách không lo tăng cân khi ăn nhiều kem Gelato.
 
-2. Nguyên liệu và kĩ thuật đánh đông
+**2. Nguyên liệu và kĩ thuật đánh đông**
 
 Để chế biến thành công kem Gelato đích thực, người làm phải tính toán kỹ lưỡng trong việc cân bằng lượng nước và đường, hoàn toàn không sử dụng chất làm cân bằng nhân tạo nhằm ngăn tình trạng kem đông đá mà vẫn giữ được độ mềm mịn của kem. Chỉ cần quá lượng cần thiết sẽ làm kem đông đá hoặc dễ tan chảy. Bỏ vào miệng một viên kem Gelato có lẫn đá có nghĩa đó là kem Gelato không đạt.
 
@@ -36,13 +36,13 @@ Kĩ thuật chung của cả kem và Gelato là sự đánh đông/đánh bông 
 
 Thú vị hơn, kem Gelato có thể tích nặng gấp 3 – 4 lần kem thông thường. Nguyên nhân là máy đánh kem Gelato quay rất chậm nhằm hạn chế bong bóng khí trong kem. Kem Gelato chỉ chứa 25 – 30% khí, trong khi kem thông thường chứa 50%. Nhà sản xuất thêm bong bóng khí vào để nhân đôi số lượng lên, cho nên chất lượng cũng bị giảm đi một nửa. Điều đó cũng có nghĩa giá trị của kem Gelato mang lại cho thực khách nhiều hơn các loại kem khác.
 
-3. Nhiệt độ
+**3. Nhiệt độ**
 
 Kem Gelato luôn là kem còn rất tươi và ăn ngon hơn khi tan trong miệng do đường dùng trong kem là loại đường gốc thủy phân từ đường mật ong. Đây là loại đường làm chậm hiện tượng kết tinh và giúp giữ độ ẩm lâu. Kem Gelato chỉ bảo quản được tối đa 10 ngày với nhiệt độ từ -12 độ C đến -15 độ C , trong khi kem thông thường phải giữ ở -23 độ C nên có thể bảo quản được trong suốt một năm.
 
 Cũng vì sự khác biệt này mà món kem thường được phục vụ trong các cửa hiệu, nhà hàng hoặc các xe bán dạo với thùng chứa lớn lạnh cóng đầy đá là đá, trong khi đó các xe Gelato lại bon bon trên đường phố Ý với thùng chứa nhẹ nhàng, nhỏ gọn hơn nhiều.
 
-Kết luận
+**Kết luận**
 
 Với sự tinh tế và cẩn thận từng li trong chế biến, Gelato còn được xem là một trong những món tráng miệng chứng tỏ đẳng cấp của người đầu bếp.
 

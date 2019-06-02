@@ -6,7 +6,9 @@ author: [doanbinh]
 ---
 
 
-Một cốc sinh tố thơm ngon, một ly nước ngâm mát lạnh hay những loại nước vắt trong lành sẽ trở nên hấp dẫn và ấn tượng hơn nếu bạn chăm chút hơn về hình thức. Chỉ cần một chút tinh ý và khéo léo thì đã có thể tự tay trang trí đồ uống bằng chính những nguyên vật liệu phổ biến trong pha chế.
+Một cốc sinh tố thơm ngon, một ly nước ngâm mát lạnh hay những loại nước vắt trong lành sẽ trở nên hấp dẫn và ấn tượng hơn nếu bạn chăm chút hơn về hình thức. 
+
+Chỉ cần một chút tinh ý và khéo léo thì đã có thể tự tay trang trí đồ uống bằng chính những nguyên vật liệu phổ biến trong pha chế.
 
 Giữa hàng ngàn Quán cà phê thì không gian đẹp chưa đủ để tạo nên “linh hồn” cho quán… Và chỉ khi thực sự cảm nhận được “phần hồn” đó từ những ly đồ uống thì khách mới có thể nhớ và quay lại nhiều lần.
 
@@ -14,7 +16,7 @@ Người ta nói “hình thức quyết định nội dung” quả không sai.
 
 Đầu tiên, các bạn hãy lựa chọn nguyên liệu trang trí đồ uống phù hợp với gu thưởng thức và thẩm mỹ của người sẽ thưởng thức. Sau đó, hãy mường tượng và định hình trong tâm trí xem bạn muốn phong cách decorate như thế nào cho ly nước. Tiếp theo đó hãy tham khảo những mẹo nhỏ sau nhé:
 
-1. Lựa chọn các kiểu ly trang trí đồ uống phù hợp:
+**1. Lựa chọn các kiểu ly trang trí đồ uống phù hợp:**
 
 Mỗi loại đồ uống khác nhau sẽ phù hợp với một ly loại tương ứng. Bạn không thể dùng ly rượu mạnh để uống rượu vang hay dùng ly cocktail để uống sinh tố. Một ly cà phê sữa đá thân quen, giản dị thì không cần trang trí cầu kì như một ly nước ép. Vì thế hãy chú ý tìm hiểu kỹ và chọn những ly nước xinh xắn phù hợp với đồ uống mà bạn định pha chế. Có rất nhiều loại ly cốc hiện nay với nhiều kiểu dáng khác nhau. Sau khi chọn được kiểu dáng ly thì bạn mới có thể có được sự trang trí dựa trên loại ly và màu sắc của đồ uống mà bạn có.
 
@@ -26,29 +28,29 @@ Với những loại ly, cốc có chất liệu khác thủy tinh (đục, khô
 
 Ngoài ra bạn cũng có thể sử dụng ly màu để “chữa cháy” những khi nguyên liệu không cho màu đẹp. Tuy nhiên vẫn nên ưu tiên ly thủy tinh trong suốt để tôn vinh màu sắc của các loại đồ uống tự nhiên.
 
-2. Khéo léo đưa thiên nhiên vào trang trí đồ uống
+**2. Khéo léo đưa thiên nhiên vào trang trí đồ uống**
 
 Bạc hà, lá húng đơn giản mà hiệu quả: Chỉ vài lá bạc hà hoặc lá húng xanh tươi mát, một bông hoa xinh xắn hay những quả mọng nhỏ xinh cài lên miệng ly sẽ khiến ly nước trở nên tinh tế hơn. Thậm chí khi bạn cho lá húng lủi, lá bạc hà, một nhành quế, hoa hồi hay trái cây tươi vào ly nước sẽ khiến đồ uống ngon, hương vị trở nên đặc sắc hơn.
 
- Lá trái thơm (khóm): đừng bỏ đi những lá của trái thơm, hãy giữ lại và để tủ lạnh để trang trí cùng với chanh cho các món uống.
+Lá trái thơm (khóm): đừng bỏ đi những lá của trái thơm, hãy giữ lại và để tủ lạnh để trang trí cùng với chanh cho các món uống.
 
 Ngẫu hứng vỏ cam/chanh: Khi pha chế những thức uống từ cam/chanh bạn đừng vội bỏ vỏ đi nhé, một chút khéo léo tận dụng vỏ cam/chanh thành những vật trang trí thức uống tuyệt vời. Ly thức uống của bạn sẽ hấp dẫn hơn rất nhiều cả hương lẫn sắc.
 
- Trang trí bằng bông hoa lá duyên dáng
+*Trang trí bằng bông hoa lá duyên dáng*
 
 Bạn cũng có thể ngắt những bông hoa tươi. Nếu bông hoa này có kiểu dáng phù hợp với ly và màu sắc phù hợp với màu đồ uống thì ly nước của bạn sẽ trở nên đặc biệt hấp dẫn đấy.
 
 Có hai kiểu trang trí thường gặp với hoa đó là hoa đặt trên miệng cốc hoặc hoa gác ngang miệng cốc.
 
-Trang trí bằng trái cây
+*Trang trí bằng trái cây*
 
 Bạn có thể trang trí đồ uống bằng các loại trái cây khác nhau dưới dạng cả quả nguyên vẹn hoặc một lát hay một chuỗi xâu các quả với nhau tùy trường hợp.Những lát quả trong lòng cốc sẽ tránh cho ly nước trở nên đơn điệu mà giàu sức sống.Gài các lát quả trên miệng cốc là cách trang trí vô cùng phổ biến khiến cho ly nước trở nên có sinh khí và tinh tế hơn.
 
-3. Trang trí đồ uống với hạt cà phê, bột ca cao:
+**3. Trang trí đồ uống với hạt cà phê, bột ca cao:**
 
 Đối với cà phê, đặc biệt là các dòng cà phê Ý, những hạt cà phê nhỏ xinh đặt trên dĩa đựng hay một chút bột ca cao trên lớp bọt sữa bồng bềnh sẽ làm bạn cảm thấy tách cà phê càng thêm đậm đà, hấp dẫn.
 
-4. Trang trí bằng đá hoa, đá quả
+**4. Trang trí bằng đá hoa, đá quả**
 
 Đá hoa, đá quả là một sự sáng tạo đáng yêu cho các loại nước trái cây của bạn. Tươi rói bên trong khuôn đá long lanh, các loại hoa, quả làm tăng vẻ đẹp đáng kể cho ly nước của bạn và sẽ tạo được ấn tượng đẹp trong lòng người thưởng thức.
 

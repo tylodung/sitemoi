@@ -70,7 +70,7 @@ Cuối cùng, chuẩn bị một nồi nước sôi nhỏ, thả những viên t
 Lưu ý, nếu bạn lỡ tay nặn quá nhiều hạt trân châu mà không sử dụng hết, hãy an tâm chúng sẽ không bị hư khi bạn cho tất cả vào ngăn đá tủ lạnh để bảo quản. Mùi vị khi nấu lên sẽ không thua kèm gì hạt trân châu vừa mới làm đâu nhé.
 
 
-3. Sử dụng và bảo quản
+**3. Sử dụng và bảo quản**
 
 Vớt hạt trân châu đen ra cho vào ly trà sữa để thưởng thức.
 
