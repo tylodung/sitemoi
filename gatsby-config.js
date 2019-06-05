@@ -9,7 +9,7 @@
 module.exports = {
   siteMetadata: {
     title: 'Ẩm Thực',
-    siteUrl: 'https://fontgenerator.cc/',
+    siteUrl: 'https://congdata.com/',
     rssFeedTitle: 'tinhthuong',
     rssFeedDescription: 'Đoàn Bình và Ăn Uống',
   },

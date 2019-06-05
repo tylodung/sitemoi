@@ -148,7 +148,7 @@ const Header = ({location}) => (
                 borderRadius: 15,
               },
             }}
-            href="https://fontgenerator.cc/"
+            href="https://congdata.com/"
             target="_blank"
             rel="noopener">
             Bakadono {version}
