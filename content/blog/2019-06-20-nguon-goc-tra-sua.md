@@ -6,7 +6,11 @@ author: [doanbinh]
 ---
 
 
-Nguồn gốc của trà sữa trân châu chính là ở Đài Loan từ khoảng 27 năm trước (1980) và hiện nay vẫn là một đồ uống yêu thích hàng ngày của hàng triệu người. không những thế trà sữa trân châu đã vươn xa đến khắp nơi trên thế giới từ Châu Á, Châu ÚC, Châu Âu đến cả Châu Mỹ… dưới hình thức những quầy bán hàng nhỏ.
+Nguồn gốc của trà sữa trân châu chính là ở Đài Loan từ khoảng 27 năm trước (1980) và hiện nay vẫn là một đồ uống yêu thích hàng ngày của hàng triệu người.
+
+![ten buc hinh](https://vietblend.vn/wp-content/uploads/2018/12/maxresdefault-1.jpg "ten buc hinh")
+
+Không những thế trà sữa trân châu đã vươn xa đến khắp nơi trên thế giới từ Châu Á, Châu ÚC, Châu Âu đến cả Châu Mỹ… dưới hình thức những quầy bán hàng nhỏ.
  
 
 Ý tưởng đầu tiên được xuất phát từ một người bán trà rong tên là Nancy Yang. Vì để cạnh tranh với những quán trà khác và muốn thu hút thêm khách hàng là giới trẻ người này đã nghĩ ra việc thêm một loại đồ uống mới, bổ dưỡng mang hương vị hoa quả, hương vị trái cây cũng như sữa vào món trà của mình. Ý tưởng này ngay lập tức đã rất thành công và trở thành một trào lưu mạnh mẽ ở Đài Loan với tên gọi Trà bong bóng. Tại sao lại gọi là Trà bong bóng?

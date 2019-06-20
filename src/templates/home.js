@@ -92,7 +92,7 @@ class Home extends Component {
                     fontSize: 60,
                   },
                 }}>
-                Đồ Uống Bá Cháy Cực Đơn Giản
+                Bà Mẹ Đảm Đang
               </h1>
               <p
                 css={{
